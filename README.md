@@ -1,1 +1,1 @@
-# Mi proyectote >:) Grupo 7
+# Mi proyectito :) Grupo 7
